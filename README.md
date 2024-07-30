@@ -1,7 +1,7 @@
 # cmd gratis hasil modif
-<----
+<-----
 Gratis Silahkan kalau mau ambil orang indo mana yang gak mau yang gratis 😹
------>
+------>
 # Beberapa tautan
 owner: https://facebook.com/rahesa.modif.cmd
 mod: https://Facebook.com/IXHSXXNVZ
